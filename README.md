@@ -56,6 +56,11 @@ Pet to human AI offers flexible pricing options:
 - [bri-calculator](https://bri-calculator.com/)
 - [prayer](https://prayer-for.com/)
 - [verses](https://bible-verses-ai.com/)
+- [paleorunningmomma](https://www.paleorunningmomma.com/garlic-tuscan-shrimp-paleo-whole30/#comment-567057)
+- [heatherlikesfood](https://heatherlikesfood.com/microwave-chocolate-chip-pizookie/comment-page-2/#comment-699240)
+- [promoteproject](https://www.promoteproject.com/startup/182326/pet-to-human)
+- [yarnharlot](https://www.yarnharlot.ca/2024/08/day-zero/#comment-1706576)
+- [fazier](https://fazier.com/launches/pet-to-human)
 
 
 
