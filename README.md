@@ -4,7 +4,11 @@ Transform your pet photos into realistic human versions with advanced AI technol
 
 [Try Now for free](https://pet-to-human.com)
 
+
 ## About Pet to human AI
+
+![logo](https://pet-to-human.com/logo.png)
+![example](https://pet-to-human.com/imgs/features/2.webp)
 
 Pet-to-human.com is a web application that transforms your pet photos into realistic human versions using cutting-edge AI technology, letting you see what your furry friends might look like as people.
 
@@ -61,6 +65,32 @@ Pet to human AI offers flexible pricing options:
 - [promoteproject](https://www.promoteproject.com/startup/182326/pet-to-human)
 - [yarnharlot](https://www.yarnharlot.ca/2024/08/day-zero/#comment-1706576)
 - [fazier](https://fazier.com/launches/pet-to-human)
+- [Hacker news](https://news.ycombinator.com/item?id=43800338)
+- [googleblog](https://developers-id.googleblog.com/2023/03/vidio-perkuat-kesuksesannya-di.html?sc=1745633878923#c7709367022654457575)
+- [wix](https://nl.wix.com/blog/post/15-toffe-wix-website-voorbeelden-die-je-inspireren)
+- [acm](https://interactions.acm.org/blog/view/embodied-games-from-nyu-itp/comment_added#comments)
+- [ticksy](https://veented.ticksy.com/ticket/3606708)
+- [eivissa](http://eivissa.s3.xrea.com/ClubSantAntoni/)
+- [tributearchive](https://www.tributearchive.com/resources/2bc817b7-9db2-44d1-a919-0115b60711b3/finding-the-right-grief-counselor)
+- [hackmd](https://hackmd.io/pvbO02D9ROWtJu1ODHq10Q?utm_source=comment-card&utm_medium=icon)
+- [educa](https://www.educa.jcyl.es/blogs/en/leyendo/fase-provincial-burgos-i-certamen-lectura-publico)
+- [sakura](http://www15420ui.sakura.ne.jp/snapblog/diary/class/20081129_02.htm#wb)
+- [rockwool](https://as-cn-video.rockwool.com/7-strengths-testing-thermal)
+- [noosfero](https://noosfero.ufba.br/freeaccounts/blog/apk-download#!)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
