@@ -107,7 +107,19 @@ Pet to human AI offers flexible pricing options:
 - [offcourse](https://offcourse.co/users/activity/14228/)
 - [flokii](https://www.flokii.com/questions/view/4042/boost-your-telegram-account-what-are-your-best-strategies)
 - [industryarena](https://en.industryarena.com/forum/showthread.php?t=457780&p=2613459#post2613459)
-
+- [onlineslangdictionary](http://onlineslangdictionary.com/term/add/raspberry-pi)
+- [highlite](https://forum.highlite.com/showthread.php?tid=1831&pid=4619#pid4619)
+- [muvizu](https://videos.muvizu.com/Profile/Public/latest.aspx?username=kimberley228k)
+- [pampling](https://www.pampling.com/comunidad/usuarios/67962-paulagarlo)
+- [farming-mods](https://farming-mods.com/news/vydelennye_servera_i_prilozhenija/2018-07-14-33)
+- [pixel77](https://pixel77.com/how-to-use-photography-in-graphic-design/#comment-219468)
+- [readweb](https://readweb.ai/en/page/c3f3eedbb4cc0ad8de91e48466310ca9)
+- [wixstudio](https://fnfansite.wixstudio.com/fridaynightfansite/forum/skin-mods/_hiii-1)
+- [poradna](https://pc.poradna.net/flashes/3004116-linux-ve-windows-umi-gui-aplikace#r3292144)
+- [provenexpert](https://www.provenexpert.com/yxchen1994/)
+- [english](https://www.english.cam.ac.uk/spenseronline/review/item/46.2.10/#comment-10833)
+- [betterreading](https://www.betterreading.com.au/news/qa-michael-connelly-author-of-the-waiting/#comment-472765)
+- [lunchboxdad](https://www.lunchboxdad.com/2021/03/how-to-make-easter-bunny-lunch-for-your.html?sc=1745658276698#c3792114535448815737)
 
 
 
