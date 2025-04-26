@@ -43,3 +43,22 @@ Pet to human AI offers flexible pricing options:
 
 - **Privacy Policy**: [View Privacy Policy](https://pet-to-human.com/privacy-policy)
 - **Terms of Service**: [View Terms of Service](https://pet-to-human.com/terms-of-service)
+
+## Testimonial or report
+- [ghiblify](https://ghiblify.run)
+- [nailgenie](https://nailgenie.org/)
+- [kcd2](https://kcd2.org/)
+- [DestinyMatrix](https://destiny-matrix.cc/)
+- [marszeichenberechnen](https://marszeichenberechnen.com/)
+- [pokemontcgpocket](https://pokemontcgpocket.app/)
+- [unblockedescaperoads](https://unblockedescaperoads.com/)
+- [incrediboxsprunkis](https://incrediboxsprunkis.org/)
+- [bri-calculator](https://bri-calculator.com/)
+- [prayer](https://prayer-for.com/)
+- [verses](https://bible-verses-ai.com/)
+
+
+
+
+
+
