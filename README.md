@@ -149,7 +149,22 @@ Pet to human AI offers flexible pricing options:
 - [heritage](https://myheritage.heritage.edu/ICS/Academics/RDG/RDG__502/1920_SU-RDG__502-10/Blog_1.jnz?portlet=Blog_1&screen=Main&screenType=change)
 - [alternativeto](https://alternativeto.net/software/pet-to-human-ai/about/)
 - [saashub](https://www.saashub.com/pet-to-human-com)
-
+- [pixabay](https://pixabay.com/users/pet-to-human-49949696/)
+- [archivists](https://www2.archivists.org/statements/saa-council-statement-on-black-lives-and-archives#comment-7592)
+- [abantecart](https://forum.abantecart.com/index.php?topic=8552.0)
+- [hi-hyperlite.](https://community.hi-hyperlite.com/showthread.php?tid=74&pid=4166#pid4166)
+- [thewatchtower](https://www.thewatchtower.com/blogs_on/ai-in-finance)
+- [swap-bot](https://www.swap-bot.com/swap/show/130849#comment-972308)
+- [garyvaynerchuk](https://garyvaynerchuk.com/communication-between-co-founders-understanding-my-business-competition-askgaryvee-episode-187/#comment-758289)
+- [www.mae.gov.bi](https://www.mae.gov.bi/en/burundi-and-the-united-nations-system-sign-a-development-cooperation-framework-plan/#comment-1280963)
+- [pchome](https://mypaper.pchome.com.tw/faranak/post/1380940717#reply)
+- [schuylersampertontextiles](https://www.schuylersampertontextiles.com/press/traditional-home-march-april-2018/#main/#comment-415635)
+- [suffolk](https://sites.suffolk.edu/pierpaolo19/2012/10/07/hydrofracking/#comment-202387)
+- [sugester](https://nasze-lasie-pl.sugester.pl/167783170-ChatGPT-in-Spain-Revolutionizing-Communication-and-AI-Interaction)
+- [cicbts](https://cicbts.dft.go.th/portal/Default.aspx?tabid=84&ID=19#Comment74592)
+- [letsknowit](https://www.letsknowit.com/mahtari-vandana-yojanain-which-state)
+- [joshuaweissman](https://www.joshuaweissman.com/post/making-fried-rice-faster-than-a-restaurant-but-faster)
+- [c-heads](https://www.c-heads.com/2015/01/27/a-place-to-belong-a-poem-by-vaiva-hawkins/#comment-1132898)
 
 
 
