@@ -147,6 +147,7 @@ Pet to human AI offers flexible pricing options:
 - [asistenciaalsuicida](https://www.asistenciaalsuicida.org.ar/post/2-de-mayo-d%C3%ADa-internacional-contra-el-bullying-o-el-acoso-escolar)
 - [city](https://www.city.fi/blogit/pinthefuckups/kalpeanaama+torilla+ja+muita+kertomuksia/124511)
 - [heritage](https://myheritage.heritage.edu/ICS/Academics/RDG/RDG__502/1920_SU-RDG__502-10/Blog_1.jnz?portlet=Blog_1&screen=Main&screenType=change)
+- [alternativeto](https://alternativeto.net/software/pet-to-human-ai/about/)
 
 
 
