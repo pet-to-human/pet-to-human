@@ -165,6 +165,8 @@ Pet to human AI offers flexible pricing options:
 - [letsknowit](https://www.letsknowit.com/mahtari-vandana-yojanain-which-state)
 - [joshuaweissman](https://www.joshuaweissman.com/post/making-fried-rice-faster-than-a-restaurant-but-faster)
 - [c-heads](https://www.c-heads.com/2015/01/27/a-place-to-belong-a-poem-by-vaiva-hawkins/#comment-1132898)
+- [webcatalog](https://webcatalog.io/zh-TW/apps/pet-to-human)
+- [pinterest](https://www.pinterest.com/03nssqk6ec5abg5h8mrz9e1irfxckk/_profile/)
 
 
 
