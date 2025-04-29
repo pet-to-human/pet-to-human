@@ -207,6 +207,7 @@ Pet to human AI offers flexible pricing options:
 - [sharonsantoni](https://sharonsantoni.com/2023/05/making-strawberry-jam-2/#comment-325505)
 - [mit](https://contemporaryarts.mit.edu/pub/buttheclouds/release/3)
 - [udn](https://blog.udn.com/essaywritingservice/131561097)
+- [patreon](https://www.patreon.com/posts/pet-to-human-ai-127713712)
 
 
 
