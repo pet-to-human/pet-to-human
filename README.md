@@ -205,6 +205,8 @@ Pet to human AI offers flexible pricing options:
 - [trustpilot](https://www.trustpilot.com/review/pet-to-human.com)
 - [bitsdujour](https://www.bitsdujour.com/suggest/robotask)
 - [sharonsantoni](https://sharonsantoni.com/2023/05/making-strawberry-jam-2/#comment-325505)
+- [mit](https://contemporaryarts.mit.edu/pub/buttheclouds/release/3)
+- [udn](https://blog.udn.com/essaywritingservice/131561097)
 
 
 
