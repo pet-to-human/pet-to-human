@@ -203,6 +203,8 @@ Pet to human AI offers flexible pricing options:
 - [lighthouseapp](http://help.lighthouseapp.com/discussions/suggestions/66506-pet-to-human)
 - [eq-ccqqfar](https://eq-ccqqfar.usac.edu.gt/del-20-al-23-08-2018-visita-de-pares-evaluadores-de-la-carrera-de-quimica/#comment-905485)
 - [trustpilot](https://www.trustpilot.com/review/pet-to-human.com)
+- [bitsdujour](https://www.bitsdujour.com/suggest/robotask)
+- [sharonsantoni](https://sharonsantoni.com/2023/05/making-strawberry-jam-2/#comment-325505)
 
 
 
