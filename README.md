@@ -4,7 +4,6 @@ Transform your pet photos into realistic human versions with advanced AI technol
 
 [Try Now for free](https://pet-to-human.com)
 
-
 ## About Pet to human AI
 
 Pet-to-human.com is a web application that transforms your pet photos into realistic human versions using cutting-edge AI technology, letting you see what your furry friends might look like as people.
@@ -208,6 +207,7 @@ Pet to human AI offers flexible pricing options:
 - [mit](https://contemporaryarts.mit.edu/pub/buttheclouds/release/3)
 - [udn](https://blog.udn.com/essaywritingservice/131561097)
 - [patreon](https://www.patreon.com/posts/pet-to-human-ai-127713712)
+- [useful guide to pet to human chatgpt prompts](https://medium.com/@yxchen1994/useful-guide-to-pet-to-human-chatgpt-prompts-940627a88276)
 
 
 
